@@ -1,5 +1,5 @@
 <h3 align="center"> <i>
-    ❝ ‎ bad ‎ thoughts ‎ give ‎ me ‎ bad ‎ dreams, ‎ and ‎ my ‎ bad ‎ dreams ‎ make ‎ me ‎ sleepwalk .‎  ❞
+    ❝ ‎ used to be one of the broken ones and i liked you for that .‎  ❞
 </h3> </i>
 
 <p align="center">
