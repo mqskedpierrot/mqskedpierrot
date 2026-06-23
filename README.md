@@ -1,9 +1,15 @@
 <h3 align="center">
-   🫧‎ ‎ ‎ ‎   ྀི◟‿ ‎ ‎ and then i go and spoil it all by saying something like i l♡ve you.
+   🫧‎ ‎ ‎ ‎   ྀི◟‿ ‎ ‎ we ‎ hope ‎ your ‎ rules ‎ and ‎ wisdom ‎ ch♡ke ‎ you.
 </h3>
 <p align="center">
-    <img src="https://file.garden/Z1OpYh3OMHUM4tMG/ezgif-63882511d6644707.gif" width="300" height="300" /> 
+    <img src="https://file.garden/Z1OpYh3OMHUM4tMG/ezgif-63882511d6644707.gif" width="400" height="400" /> 
 </p>
 <p align="center">
-    wip
+    🎭 ‎ ‎ ໒ྀི ‎ ‎ <b> sealie </b> ‎ ‎ 𓏼 ‎ ‎ she / they
+</p>
+<p align="center">
+    infp ‎ ‎ 𓏏𓏏 ‎ ‎ 6teen ‎ ‎ ୨ৎ ‎ ‎ gmt +8
+</p>
+<p align="center">
+    <a href="https://rentry.co/stitchedbuttonz">rentry</a> ‎ ‎ ‎ <a href="https://mqskedpierrot.atabook.org/">atabook</a> ‎ ‎ ‎ <a href="https://pronouns.cc/@mqskedpierrot"> prns.cc </a>
 </p>
